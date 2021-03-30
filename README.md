@@ -1,4 +1,4 @@
 # my-second-project
-Practice /n;
-Yo momma need this phone! /n;
+Practice /r
+Yo momma need this phone! /r
 Get you ass in gear!!!
