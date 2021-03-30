@@ -1,4 +1,4 @@
 # my-second-project
-Practice &#13;
-Yo momma need this phone! &#13;
+Practice /n;
+Yo momma need this phone! /n;
 Get you ass in gear!!!
