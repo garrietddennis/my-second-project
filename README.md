@@ -5,3 +5,4 @@ Get you ass in gear!!!
 Y'all be trippin'!!!  
 Check this out!  
 Let's chill?
+Git Credentials automatically saved to local file
